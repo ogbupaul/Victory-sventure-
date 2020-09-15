@@ -1,0 +1,2 @@
+# Victory-sventure-
+Smart contract platform in blockchain technology is to eradicate poverty in the society, and to have a good educational system.  It's created to promote educational development, health, trading and many more. This is a crowd funding system very easy and fast help to accumulate bitcoin and ethereum and teaches you how to generate income on cryptocurrency and blockchain technology 
